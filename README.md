@@ -1,4 +1,4 @@
-### **Contos Star! Livro Digital **
+**Contos Star! Livro Digital **
 
 **O que é esse negócio?**
 
